@@ -1,2 +1,2 @@
 # привеь!!!
-<a href="https://ru.picmix.com/stamp/found-on-terriblestamps-tumblr-deviantart-stamp-2325580
+<a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a>
